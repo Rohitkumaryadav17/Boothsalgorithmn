@@ -1,2 +1,0 @@
-# Boothsalgorithmn
-# Boothsalgorithmn
